@@ -5,3 +5,4 @@
 *- Gran Turismo 7*
 *- Diablo 4*
 *- The Legend of Zelda : Tears of the Kingdom*
+*- Kirby and the Forgotten Land*
